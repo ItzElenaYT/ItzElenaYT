@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ItzElenaYT
 - 👀 I’m interested in something
 - 🌱 I’m currently learning idk
-- 💞️ I’m looking to collaborate on gacha
+- 💞️ I’m looking to collaborate on something
 - 📫 How to reach me I really don't care
 
 <!---
